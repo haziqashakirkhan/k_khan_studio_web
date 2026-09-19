@@ -138,7 +138,7 @@ The goal is to maintain a **premium photography-studio aesthetic** without exces
 **K_Khan_Studio**
 
 📞 **03002266579**
-📞 **0315226657**
+📞 **03152266579**
 
 Instagram: **[@k_khans_studio](https://www.instagram.com/k_khans_studio/)**
 
